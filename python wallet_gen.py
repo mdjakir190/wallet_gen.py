@@ -1,3 +1,3 @@
-ffhhdughgydydyd tu fufydydtsysdgu
+fir! rffhhdughgydydyd tu fufydydtsysdgu
 tsyecdsa
 base58
